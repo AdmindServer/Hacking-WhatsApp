@@ -18,7 +18,7 @@
 
 # Hubungi admin
 - Hubungi admin untuk mendapatkan katasandi server nya
-- https://wa.me/6281385998324
+- https://wa.me/6285283786794
 
 # Join saluran kami
 
